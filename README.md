@@ -1,0 +1,1 @@
+Ideas for small projects
